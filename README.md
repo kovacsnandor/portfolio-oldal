@@ -2,4 +2,4 @@
 
 Nagyon fontos üzenet
 
-Ez most itt fojtatom.
+Ez most itt folytatom.
